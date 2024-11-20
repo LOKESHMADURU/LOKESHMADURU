@@ -5,7 +5,7 @@
 
 ---
 
-![Profile Banner](https://www.google.com/url?sa=i&url=https%3A%2F%2Fgithub.com%2Fsinghrahul7874&psig=AOvVaw28uqFxIUmE4Ry0MgcM2iPR&ust=1732174007556000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCJiss4q86okDFQAAAAAdAAAAABAR)  
+![Profile Banner](download.jpg)  
 
 ---
 
